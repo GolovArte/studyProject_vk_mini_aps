@@ -1,0 +1,1 @@
+# studyProject_vk_mini_aps
